@@ -6,4 +6,4 @@ To secure a software development or product management internship and improve my
 
 ## Long-Term Goal
 
-To become a successful Associate Product Manager who can combine technology, user research and business understanding to build useful products.
+To become a Product Manager who leads technology products that solve meaningful user and business problems.
